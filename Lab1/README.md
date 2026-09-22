@@ -4,7 +4,7 @@
 - **Họ và tên:** Phạm Ngọc Anh Khôi
 - **MSSV:** 1150070023
 - **Lớp:** 11_TMĐT
-- **Link Video YouTube:** https://www.youtube.com/watch?v=EEN2rF
+- **Link Video YouTube:** https://www.youtube.com/watch?v=EEN2rFcIMPk
 
 
 
